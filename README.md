@@ -9,7 +9,7 @@
     <p><em>Un resumen exclusivo de la intensa vida de un gato con nombre de demonio pero alma de peluche.</em></p>
 
     <h2>🌅 08:43 AM - Despertar</h2>
-    <p>Mefistófeles se despierta porque sí. Decide que todos deben hacerlo también. Maúlla como si el mundo estuviera por acabarse. Nadie se levanta. Deja in regalito en la cama junto a Luis que está durmiendo. Funciona.</p>
+    <p>Mefistófeles se despierta porque sí. Decide que todos deben hacerlo también. Maúlla como si el mundo estuviera por acabarse. Nadie se levanta. Deja un regalito en la cama junto a Luis que está durmiendo. Funciona.</p>
 
     <h2>🥣 09:12 AM - Desayuno gourmet</h2>
     <p>Revisa su plato. Está lleno, pero claramente no lo suficiente. Maulla de nuevo, pero nadie le hace caso. Termina comiéndose su plato indignado. </p>
